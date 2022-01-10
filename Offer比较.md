@@ -71,7 +71,7 @@
 
 
 
-![1641805294019](https://github.com/xuehaoran97/pictures/1641805294019.png)
+![1641805294019](https://raw.githubusercontent.com/xuehaoran97/Offer/master/pictures/1641805294019.png)
 
 
 
