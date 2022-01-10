@@ -71,23 +71,23 @@
 
 
 
-![1641805294019](C:\Users\XUEHAORAN\AppData\Roaming\Typora\typora-user-images\1641805294019.png)
+![1641805294019](https://github.com/xuehaoran97/pictures/1641805294019.png)
 
 
 
 ##### 6.2 一般投行职级图
 
-![1641805368039](C:\Users\XUEHAORAN\AppData\Roaming\Typora\typora-user-images\1641805368039.png)
+![1641805368039](https://github.com/xuehaoran97/pictures/1641805368039.png)
 
 
 
 ##### 6.3最近互联网的大裁员
 
-![1641807920207](C:\Users\XUEHAORAN\AppData\Roaming\Typora\typora-user-images\1641807920207.png)
+![1641807920207](https://github.com/xuehaoran97/pictures/1641807920207.png)
 
 ##### 6.4阿里巴巴股价
 
-![2BF9EBB5638637B9EC0571546C60C102](D:\QQDOWNLOAD\1552452225\FileRecv\MobileFile\2BF9EBB5638637B9EC0571546C60C102.png)
+![2BF9EBB5638637B9EC0571546C60C102](https://github.com/xuehaoran97/pictures/2BF9EBB5638637B9EC0571546C60C102.png)
 
 
 
@@ -97,9 +97,9 @@
 
 ##### 6.6 本部门所做业务也是好评如潮
 
-![1641806319733](C:\Users\XUEHAORAN\AppData\Roaming\Typora\typora-user-images\1641806319733.png)
+![1641806319733](https://github.com/xuehaoran97/pictures/1641806319733.png)
 
-![1641806905609](C:\Users\XUEHAORAN\AppData\Roaming\Typora\typora-user-images\1641806905609.png)
+![1641806905609](https://github.com/xuehaoran97/pictures/1641806905609.png)
 
 
 
@@ -109,21 +109,21 @@
 
 好评1 
 
-![1641806756877](C:\Users\XUEHAORAN\AppData\Roaming\Typora\typora-user-images\1641806756877.png)
+![1641806756877](https://github.com/xuehaoran97/pictures/1641806756877.png)
 
 好评2
 
-![1641806630647](C:\Users\XUEHAORAN\AppData\Roaming\Typora\typora-user-images\1641806630647.png)
+![1641806630647](https://github.com/xuehaoran97/pictures/1641806630647.png)
 
 
 
 好评3
 
-![1641806858643](C:\Users\XUEHAORAN\AppData\Roaming\Typora\typora-user-images\1641806858643.png)
+![1641806858643](https://github.com/xuehaoran97/pictures/1641806858643.png)
 
 好评4
 
-![1641806877584](C:\Users\XUEHAORAN\AppData\Roaming\Typora\typora-user-images\1641806877584.png)
+![1641806877584](https://github.com/xuehaoran97/pictures/1641806877584.png)
 
 
 
