@@ -97,7 +97,7 @@
 
 ##### 6.6 本部门所做业务也是好评如潮
 
-![1641806319733](https://github.com/xuehaoran97/pictures/1641806319733.png)
+![1641806319733](https://github.com/xuehaoran97/Offer/pictures/1641806319733.png)
 
 ![1641806905609](https://github.com/xuehaoran97/pictures/1641806905609.png)
 
