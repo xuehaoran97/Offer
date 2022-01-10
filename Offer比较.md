@@ -71,7 +71,7 @@
 
 
 
-![1641805294019](https://raw.githubusercontent.com/xuehaoran97/Offer/master/pictures/1641805294019.png)
+![1641805294019](https://github.com/xuehaoran97/Offer/blob/master/pictures/1641805294019.png)
 
 
 
@@ -87,7 +87,7 @@
 
 ##### 6.4阿里巴巴股价
 
-![2BF9EBB5638637B9EC0571546C60C102](https://github.com/xuehaoran97/pictures/2BF9EBB5638637B9EC0571546C60C102.png)
+![2BF9EBB5638637B9EC0571546C60C102](https://github.com/xuehaoran97/Offer/master/pictures/2BF9EBB5638637B9EC0571546C60C102.png)
 
 
 
